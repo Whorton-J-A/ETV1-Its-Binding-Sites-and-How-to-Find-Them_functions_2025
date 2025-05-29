@@ -1,0 +1,1 @@
+Whorton, A. J. (2024). ETV1: Its Binding Sites and How to Find Them [Master's thesis, Wright State University]. OhioLINK Electronic Theses and Dissertations Center. http://rave.ohiolink.edu/etdc/view?acc_num=wright1717076796165035
